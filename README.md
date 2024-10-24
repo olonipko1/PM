@@ -1,1 +1,6 @@
-
+# [Контр пример](https://disk.yandex.ru/i/KUSI7CO2qP3opg)
+# [Описание вх и вых](https://disk.yandex.ru/i/QFAO1yUjZ5Wyyw)
+# [Предм обл](https://disk.yandex.ru/i/_66hDoOqncV3ww)
+# [Презентация](https://disk.yandex.ru/i/Nxfv1hNLA924Og)
+# [Схема приложений](https://disk.yandex.ru/i/2Taa05yOIDcrDw)
+# [ТЗ](https://disk.yandex.ru/i/6omMGVW7E0ZHaQ)
