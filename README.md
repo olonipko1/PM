@@ -2,3 +2,4 @@
 # [диагр классов](https://disk.yandex.ru/i/WEWh0YtgNwTvmA)
 # [диагр сотсояний](https://disk.yandex.ru/i/pacX4MXIqLSk5w)
 # [диагр взаим](https://disk.yandex.ru/i/ZSx-zGNCKF_cwQ)
+# [презентация](https://disk.yandex.ru/i/vjkWwJgRetAVgA)
